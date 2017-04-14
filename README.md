@@ -3,9 +3,5 @@ You will find everything you need here
 
 Hii!
 
- Pizza
-_______    ANYDAYYY
-            
- Tacos
- 
+I would choose pizza over tacos anydayy.
              
